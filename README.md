@@ -6,4 +6,4 @@
 
 ***
 
-![biology-lab-element-vector](https://github.com/muhamed-hassan/reference-in-biology/assets/17825804/3fb928ea-ebac-4548-8dc9-5d546c4a2cc4)
+![curse_by_ai_arkitekt_dhbg5f6-fullview](https://github.com/user-attachments/assets/52fcbe70-dfe8-47c7-b4d6-6fbe3007844e)
